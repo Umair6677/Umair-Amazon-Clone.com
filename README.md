@@ -1,1 +1,1 @@
-# Umair-Amazon-Clone.com
+# Umair
